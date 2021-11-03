@@ -2,10 +2,11 @@
 
 Omar Tabaa
 31 yo
+Syrian
 
 # Rezept
 
-125 g
+250 g
 weiche Butter
 100 g
 Zucker
